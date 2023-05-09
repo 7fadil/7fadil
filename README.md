@@ -14,8 +14,6 @@
 
 - 📫 How to reach me **7.fadil01@gmail.com**
 
-- ⚡ Fun fact **It is impossible for most people to lick their own elbow.**
-
 <h3 align="left">Connect with me:</h3>
 <p align="left">
 </p>
